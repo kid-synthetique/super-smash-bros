@@ -1,1 +1,1 @@
-# super-smash-2022
+# super-smash-bros
